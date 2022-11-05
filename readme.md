@@ -1,1 +1,1 @@
-Hello World!!! WElcome to Traveling Nomads!
+Hello World!!! Welcome to Traveling Nomads!
